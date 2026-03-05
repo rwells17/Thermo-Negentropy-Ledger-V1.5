@@ -1,0 +1,1 @@
+# Thermo-Negentropy-Ledger-V1.5
